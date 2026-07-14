@@ -4,3 +4,5 @@ Nudzilo mi sie i tak o napisalem.
 
 Posiada w pamieci +- 3000 slow angielskich 5 literowych najczesciej uzywanych,
 wiec nie ma tam jakis dziwnych, ktore istnieja tylko w slownikach
+
+<img width="484" height="654" alt="image" src="https://github.com/user-attachments/assets/2a118310-73c1-4052-9faa-5d43a6c4543e" />
